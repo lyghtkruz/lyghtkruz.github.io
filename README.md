@@ -1,1 +1,1 @@
-# lyghtkruz.github.io
+# lyght.games
